@@ -1,6 +1,6 @@
-![image](https://github.com/user-attachments/assets/291fd28f-50e6-41f3-99a4-bd115a9f4628)# ChatGPT 中文版：国内直连镜像网站推荐~（支持 GPT-4、GPT-4o、o1、o3 和 DeepSeek、Claude，无需翻墙）【2025年4月 更新】 
+# ChatGPT 中文版：国内直连镜像网站推荐~（支持 GPT-4、GPT-4o、o1、o3 和 DeepSeek、Claude，无需翻墙）【2025年4月 更新】 
 
-> **更新时间：2025/04/01**    
+> **更新时间：2025/04/08**    
 
 **全面体验 ChatGPT 中文版，无需翻墙，支持 GPT-4、GPT-4o、o1、o3 和 DeepSeek、Claude 3.7、Grok 3 及中文多功能应用！**   
 
